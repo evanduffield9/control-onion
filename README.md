@@ -24,3 +24,17 @@ this
     that
 
     effort chain
+this
+    that
+
+    current
+
+    what for 
+            the who
+                   er in 
+
+                   the winch
+                            er 
+                              china
+
+                              loop

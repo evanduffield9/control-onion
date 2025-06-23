@@ -1,6 +1,12 @@
 what do i mean by control onion?
 
-It must be an analog to something they do, 
+It must be an analog to something they do, something they did
+
+wanted more the same thing car 
+
+interested in more things that work
+
+far carry
 
 what who![yma5wuk73hm01](https://github.com/user-attachments/assets/44d485e2-b51e-4e11-8c6a-ba56e321f4d9)
 ![triggerfish-feature-pinktail](https://github.com/user-attachments/assets/061c0403-d7fb-4f3a-acaf-bd18d598914f)

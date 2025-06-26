@@ -16,12 +16,15 @@ what who
 
 ![yma5wuk73hm01](https://github.com/user-attachments/assets/44d485e2-b51e-4e11-8c6a-ba56e321f4d9)
 
+meaning gross car
 esp
 ![triggerfish-feature-pinktail](https://github.com/user-attachments/assets/061c0403-d7fb-4f3a-acaf-bd18d598914f)
 
+invent
 nentwork
 ![images (6)](https://github.com/user-attachments/assets/abc44c4c-36a7-4a67-860c-e540fabef81f)
 
+ere
 ballstone
 ![Balistoides-conspicillum](https://github.com/user-attachments/assets/17961a7b-02d3-46aa-851d-d98d79912315)
 

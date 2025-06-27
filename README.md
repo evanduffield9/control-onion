@@ -1,4 +1,10 @@
-what do i mean by control onion?
+what do i mean by control orgasm?
+
+trend data save 
+
+barrier
+
+song item kai
 
 Must be something related to win, estates
 
